@@ -179,6 +179,6 @@ Distributed under the **MIT License**. See `LICENSE` for more information.
 
 Namshima B. Iordye
 
-Twitter: https://x.com/Namshima001?t=M2BjOSSyH8Q6IuAQz391qw&s=09 
+[Twitter](https://x.com/Namshima001?t=M2BjOSSyH8Q6IuAQz391qw&s=09)
 
-Email: iordyebarnabas12@gmail.com
+[Email](namshimaiordye@yahoo.com)
