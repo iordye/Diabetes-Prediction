@@ -181,4 +181,4 @@ Namshima B. Iordye
 
 [Twitter](https://x.com/Namshima001?t=M2BjOSSyH8Q6IuAQz391qw&s=09)
 
-[Email](namshimaiordye@yahoo.com)
+[Email](iordyebarnabas12@gmail.com)
